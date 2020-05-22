@@ -1,2 +1,2 @@
 # famousx2
-This was not what i planned. Kim
+This was not what i planned. Kim K
